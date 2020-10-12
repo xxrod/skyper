@@ -1,0 +1,2 @@
+# skyper
+its a 100 player battle royal last one standing wins and there is no blod in the game and the mad has a water storm that takes ofer the map there is a loby there is a 4 game mods and a big map to explor and there mite be some ways to go faster in the game and it will have a lot of seasons and a lot of guns will be new each seasons and to name some guns the pump the ar the self machine gun and more so engoy.
